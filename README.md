@@ -181,7 +181,7 @@ Cons:
 
 "Datacamp's hands-on projects helped me land my first data analyst job." - Mike, Recent Graduate
 
-## Conclusion: DataCamp Discount & Coupons [50% OFF]
+## Conclusion: DataCamp Coupons & Discounts [50% OFF]
 
 A half-priced annual subscription to Datacamp is offered to individuals, students, and company owners. Currently, the platform sells services for $300 for only $149.
 
