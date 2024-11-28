@@ -1,5 +1,3 @@
-# Datacamp Discount Codes 2024 | 50% Off Coupons
-
 Get [Datacamp Coupon Codes](https://bit.ly/4cFkAz2) during their current promotions.
 
 So, you receive the membership for just $149 a year instead of the regular fees.
@@ -31,13 +29,13 @@ You can [save $151](https://bit.ly/4cFkAz2) on Datacamp Premium for people with 
 
 The Datacamp Black Friday sale is the best time to score massive savings on Datacamp. In 2024, they're offering a whopping [50% discount](https://bit.ly/4cFkAz2) on their Premium subscription. This brings the annual plan down from $298 to just $149.
 
-## 50% OFF Coupon Code (Unlimited Data and AI Learning Sale)
+## 60% OFF Coupon Code (Unlimited Data and AI Learning Sale)
 
-Grab [50% Off](https://bit.ly/4cFkAz2). With this coupon deal, you get access to over 400 courses, interactive projects, and career guidance for half the regular price.
+Grab [60% Off](https://bit.ly/4cFkAz2). With this coupon deal, you get access to over 400 courses, interactive projects, and career guidance for half the regular price.
 
-### 50% Discount On Datacamp Premium Yearly Billing
+### 55% Discount On Datacamp Premium Yearly Billing
 
-Opting for yearly billing on the Premium plan unlocks a [50% discount](https://bit.ly/4cFkAz2) compared to monthly payments.
+Opting for yearly billing on the Premium plan unlocks a [55% discount](https://bit.ly/4cFkAz2) compared to monthly payments.
 
 Here's what Premium includes:
 
@@ -58,12 +56,12 @@ Want to try before you buy? Datacamp offers a free Basic plan with:
 
 Pupils, celebrate! Verified students can receive a substantial [50% discount](https://bit.ly/4cFkAz2) on Datacamp's Premium subscription. All you need to do is present proof of enrollment.
 
-### Get 50% Off Promo Code On DataCamp Courses
+### Get 30% Off Promo Code On DataCamp Courses
 
 Here are the current Datacamp promotions:
 
-* Premium Individual: 149/year (reg. \298)
-* Teams Basic: Custom pricing with 50% off
+* Premium Individual: $208/year (reg. \$298)
+* Teams Basic: Custom pricing with 30% off
 * Enterprise: Contact for special rates
 * Datacamp Free Week [expired]
 
@@ -73,7 +71,7 @@ These Datacamp promotions have unfortunately expired, but keep an eye out for ne
 
 ### 67% OFF Datacamp Discount code: Accelerate Your Career Offer [Expired]
 
-Now available is the Datacamp Zero-Job Ready discount. You will receive a [65% discount](https://bit.ly/4cFkAz2) on Datacamp subscriptions as part of this deal. All Datacamp subscription plans would be eligible for this discount.
+Now available is the Datacamp Zero-Job Ready discount. You will receive a [67% discount](https://bit.ly/4cFkAz2) on Datacamp subscriptions as part of this deal. All Datacamp subscription plans would be eligible for this discount.
 
 ## How To Redeem Datacamp Coupon Code & Discount? (Step-By-Step)
 
@@ -187,7 +185,7 @@ A half-priced annual subscription to Datacamp is offered to individuals, student
 
 You also receive extra benefits like $318.96 off Recruit Pro and six months of free Premium.
 
-[Get 50% Discount Data camp Coupons]
+[[Get 50% Discount Data camp Coupons]](https://bit.ly/4cFkAz2)
 
 Take advantage of DataCamp discount codes to access premium courses at a lower cost.
 
