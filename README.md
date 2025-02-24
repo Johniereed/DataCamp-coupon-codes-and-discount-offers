@@ -1,3 +1,5 @@
+# DataCamp Coupon Code 2025 | Claim 50% Discount Monthly & Yearly
+
 Grab the best [Datacamp coupons](https://bit.ly/4cFkAz2) in 2025 and claim a flat 50% discount on Data and AI Skill courses.
 
 If you want to enhance your AI & data analytical skills DataCamp is the best platform for you to start with whether you are a beginner or a working professional who wants to switch.
